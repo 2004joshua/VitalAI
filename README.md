@@ -1,2 +1,2 @@
 # VitalAI
-aaron loves men
+josh is a faggot 
