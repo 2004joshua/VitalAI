@@ -1,2 +1,2 @@
 # VitalAI
-josh is a faggot 
+the celtics own the nuggets
